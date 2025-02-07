@@ -1,0 +1,3 @@
+As you were traveling down Saratoga Rd. in Jacks Jeep Grand Cherokee, you hit something big and furry causing you to spin out. You then went through a portal that teleported you to a fantasy world.
+
+You saw smoke in the distance and decided to drive the car to where the smoke was coming from. Arriving where the smoke emanated from you realized it was a small collection of buildings called [[Stathford]]. Going to the inn, you attempted to buy some food but had no money it was as this point you met [[David son of David]]. The town blacksmith came bursting through the door and asked you to go save his daughter.

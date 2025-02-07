@@ -1,2 +1,2 @@
-You meet Rotten Eye in his tower. After a very breif fight he killed eacch of you using *Power Word Kill*. This got you sent to [[Hell]].
+You meet Rotten Eye in his tower. After a very breif fight he killed eacch of you using *Power Word Kill*. This got you sent to [[6) Rotten Eye and Hell]].
 You came back and killed him. The Knower resurrected him as an undead and you killed him again.

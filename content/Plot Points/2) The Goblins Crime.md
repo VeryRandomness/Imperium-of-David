@@ -1,0 +1,1 @@
+You went to where the Gloomshank tribe had their lair and fought your way through them. You found the blacksmiths daughter about to be sacrificed by a Hobgoblin Shaman. After killing the Shaman a wind swept through the air that sounded vaguely like a scream of anger. You also found the [[Note from Dead Hand]].

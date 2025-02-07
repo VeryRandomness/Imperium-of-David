@@ -2,4 +2,4 @@ You meet David in [[Stathford]] at "The Cask and Rat". When you meet him he was 
 
 At first you were suspicious of David but after fighting along side him you have come to think of him like your brother.
 
-When you got sent to [[Hell]] David revealed some of his backstory ([[David's Backstory]]).
+When you got sent to [[6) Rotten Eye and Hell]] David revealed some of his backstory ([[David's Backstory]]).

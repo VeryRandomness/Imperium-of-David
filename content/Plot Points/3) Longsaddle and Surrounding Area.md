@@ -1,0 +1,5 @@
+On your journey to [[Longsaddle]] you had to cross a river. You also ran into a group of Goblins and a Bugbear that, after killing, revealed there was a bounty ([[The Bounty]]) on your heads.
+
+In [[Longsaddle]] Proper you sought after [[Heldspar Gunth]] to collect your reward for killing goblins and such. He invited you over for dinner and told you to investigate his home to prove that he was not the person killing people. It turns out that his Great Great Great Great Great Grandfather who was a vampire. You also were given a quest from [[Halaema Glavien (Jacks Mom)]] to retrive a stolen family artifact. This took you to the black markets north of [[Longsaddle]].
+
+You stayed in Longsaddle for a while, becoming friendly with the towns people. 5 Orcs came to town one day and said they were there to collect you. After killing them you found [[Rotten Eye's Command]] on their bodies.
