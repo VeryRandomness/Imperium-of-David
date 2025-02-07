@@ -1,0 +1,3 @@
+As you were traveling down Saratoga Rd. in Jacks Jeep Grand Cherokee, you hit something big and furry causing you to spin out. You then went through a portal that teleported you to a fantasy world.
+
+You saw smoke in the distance and decided to drive the car to where the smoke was coming from. Arriving where the smoke emanated from you realized it was a small collection of buildings called Stathford

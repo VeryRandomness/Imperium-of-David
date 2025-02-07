@@ -1,6 +1,6 @@
 ---
-title: Welcome to Quartz
+title: Hello Adventurer
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+Use the Explorer Menu to see what has happened so far!
+
