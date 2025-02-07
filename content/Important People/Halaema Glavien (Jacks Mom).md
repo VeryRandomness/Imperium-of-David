@@ -1,0 +1,1 @@
+Halaema runs "The Gilded Horseshoe" in [[Longsaddle]]. She gave you a fetch quest to go to the black market and find her family sword. After returning her the sword, she kinda adopted the party, but had a special place in her heart for Jack. They began to refer to each other and Mom and Son.

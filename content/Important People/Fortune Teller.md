@@ -1,0 +1,1 @@
+You met this mysterious man [[Traveling to Triboar]]. He said "You are on a journey with death and destruction at the end. The All Knower and it's followers are aware of your presence. They desire your demise, you desire to return from whence you came. Only fate knows the end." and then disappeared in a puff of smoke.
