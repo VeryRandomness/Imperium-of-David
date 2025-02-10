@@ -1,0 +1,1 @@
+A small, squat man that was offering money for goblin ears. He was able to also get the players to prove that he was not the one killing people in [[Longsaddle]] by having them investigate his manor.
