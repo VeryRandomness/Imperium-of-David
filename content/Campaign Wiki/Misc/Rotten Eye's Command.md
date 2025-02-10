@@ -8,4 +8,4 @@ Our sources tell us that they are in Longsaddle. Go there without hesitation and
 
 Failure will mean death to your entire clan. After Dead hand and I are done, no one will ever remember the former glory of the Orc War Chief Collective. The forests of your home will run red with blood if you fail.
 
- -- Rotten Eye
+ -- [[Rotten Eye]]

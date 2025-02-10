@@ -12,4 +12,4 @@ Move swiftly and silently and remember: the fate of our future depends on your c
 
 In darkness,
 
-**Dead Hand**
+**[[Dead Hand]]**

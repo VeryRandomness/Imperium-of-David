@@ -12,4 +12,4 @@ I await your prompt action.
 
 For the glory of The Knower,
 
-**Dead Hand**
+**[[Dead Hand]]**

@@ -19,3 +19,5 @@ Jes... Jes died later that day.
 From a battalion of 950 men, only two made it out. After we pushed the demons back to the Seven Hells, Dolgu and I were given medals of honor. Medals we didn't earn. We knowingly disobeyed orders. We caused the deaths of hundreds of the best soldiers to ever have fought in Faerûn. I caused the death of my betrothed by not forcing her to evacuate earlier.
 
 After the ceremony Dolgu and I got in a fight and traded blows before city guards broke it up and threw us in Neverwinter hold for a few days. Dolgu got out first, his family is related to the King of the Dwarves and they pulled some strings with The Lord Superior to get him released. I haven't seen him since.
+
+[[David son of David]]
