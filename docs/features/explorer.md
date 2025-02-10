@@ -158,7 +158,7 @@ Using this example, you can remove elements from your explorer by providing an a
 ```ts title="quartz.layout.ts"
 Component.Explorer({
   filterFn: (node) => {
-    // set containing names of everything you want to filter out
+    Book Chapters // set containing names of everything you want to filter out
     const omit = new Set(["authoring content", "tags", "hosting"])
     return !omit.has(node.name.toLowerCase())
   },
