@@ -1,0 +1,1 @@
+This Sci-fi book set in the near future on Earth's largest satellite the Moon. It is told through the eyes of Mannie, a one armed computer repair man turned revolutionist. This book shows the tyranny of a distant government, the power of computers, and the beautiful idea of [[TANSTAAFL]]! 
