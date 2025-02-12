@@ -1,0 +1,2 @@
+I just finished *The Moon is a Harsh Mistress* by Robert Heinlein. This Sci-fi book set in the near is told through the eyes of Manny, a one armed computer repair man turned revolutionist. This book shows the tyranny of a distant government, the dangers of prison colonies, and the idea of TANSTAFL! 
+4 out of 5 stars!
