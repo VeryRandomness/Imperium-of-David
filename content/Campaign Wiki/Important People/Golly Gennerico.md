@@ -1,0 +1,1 @@
+She works at [[Platomi Nakaza]] and was saved by [[David son of David]]

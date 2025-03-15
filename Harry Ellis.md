@@ -1,0 +1,1 @@
+Donald Trump as a gnome that works at [[Platomi Nakaza]]
