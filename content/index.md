@@ -1,13 +1,6 @@
 ---
-title: Hello Adventurer
+title: Welcome to Quartz
 ---
 
-Use the Explorer Menu to see my different projects. Or click one of my recommend links:
-
-[[What Has Happened So Far]] - For what my D&D Campaign has been up to
-
-[[My Book]] - A pet project I work on in my free time
-
-[[What I've Been Reading]] - A growing list of books I am reading and my thoughts on them
-
-
+This is a blank Quartz installation.
+See the [documentation](https://quartz.jzhao.xyz) for how to get started.
