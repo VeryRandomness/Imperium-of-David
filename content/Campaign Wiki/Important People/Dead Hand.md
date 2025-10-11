@@ -1,1 +1,0 @@
-Little is known about Dead Hand. His powers are yet to be seen.

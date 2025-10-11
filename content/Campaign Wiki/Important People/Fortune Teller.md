@@ -1,1 +1,0 @@
-You met this mysterious man [[4) Traveling to Triboar]]. He gave you [[The Fortune]]. Then disappeared.
