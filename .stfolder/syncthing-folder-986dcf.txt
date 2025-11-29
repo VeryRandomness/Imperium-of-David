@@ -1,0 +1,5 @@
+# This directory is a Syncthing folder marker.
+# Do not delete.
+
+folderID: waejb-jsq4p
+created: 2025-11-02T20:12:53-07:00
